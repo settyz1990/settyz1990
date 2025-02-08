@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @settyz1990 
-- 👀 I’m interested in ... Collaberting with IT Service Industries
+- 👀 I’m interested in ... Collaborating with IT Service Industries
 - 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate with...IT Service Industries
 - 📫 How to reach me ... 8317688485
